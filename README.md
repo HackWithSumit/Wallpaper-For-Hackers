@@ -7,7 +7,8 @@
 <b>Desktop Wallpaper:</b>
 
 
-![Desktop  Wallpaper by Sumit Ghosh](https://github.com/HackWithSumit/Wallpaper-For-Hackers/assets/120317751/c4fbef61-6c80-4df2-8aff-498e41f5d640)
+![Untitled_design-removebg-preview](https://github.com/HackWithSumit/Wallpaper-For-Hackers/assets/120317751/7db72005-3e2e-4472-947e-8f8148cdf646)
+
 
 <b>Mobile Wallpaper:</b>
 
